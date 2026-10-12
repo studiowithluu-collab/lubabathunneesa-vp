@@ -1,5 +1,5 @@
 # lubabathunneesa-vp
-# Hi, I'm Lubabathunneesa V 👋
+# Hi, I'm Lubabathunneesa VP 👋
 
 I'm a freelance digital marketer interested in SEO, social media marketing, graphic design, and video editing.
 
